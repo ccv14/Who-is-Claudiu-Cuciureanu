@@ -18,4 +18,3 @@
 
 ### 📫 **Connect with Me**
 - [LinkedIn](www.linkedin.com/in/claudiu-cuciureanu-a9316a302)
-  -[E-Mail](claudiu.cuciuureanu14@gmail.com)

@@ -1,4 +1,4 @@
-# Hi there 👋, I'm [Your Name]  
+# Hi there 👋, I'm [Cuciureanu Claudiu]  
 
 🚀 **Front-End Developer** | Passionate about creating stunning, user-friendly web applications.  
 
